@@ -23,6 +23,7 @@
 15. The U.S. media and other social figures use a very inclusive and psychodramatik way of talking about diversity, the corporate ladder, and political power.
 16. Some terms associated with the U.S.' competitive spirit are `rat race`, `scramble`, `hustle`, and `ambition`. The dirty work and dirty games do not in and of themselves
     make this country exceptional.
-18. The regionalism of the U.S. ensures that some regions are more favored to hold economic hegemonies over certain industries than others.
-19. The U.S. mantra of war, business, and politics complements the coined sociologist's term, `durable inequality`.
-20. Equal in scope to the U.S.' rich history of technological achievements (despite its being a young nation) is a history more than slightly riddled with fraud. 
+17. The regionalism of the U.S. ensures that some regions are more favored to hold economic hegemonies over certain industries than others.
+18. The U.S. mantra of war, business, and politics complements the coined sociologist's term, `durable inequality`.
+19. Equal in scope to the U.S.' rich history of technological achievements (despite its being a young nation) is a history more than slightly riddled with fraud. 
+20. The U.S. is not entirely a haven for rationalists. In fact, it can be argued that there exists no country in the world that is entirely a haven for rationalists.
