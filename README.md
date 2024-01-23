@@ -21,6 +21,7 @@
 13. People read the U.S. headlines and see the statistics, prompting them to expect a lot for themselves from the U.S.
 14. The U.S. has been going through indescribable political changes over the past two decades.
 15. The U.S. media and other social figures use a very inclusive and psychodramatik way of talking about diversity, the corporate ladder, and political power.
-16. Some terms associated with the U.S.' competitive spirit are `rat race`, `scramble`, `hustle`, and `ambition`.
-17. The regionalism of the U.S. ensures that some regions are more favored to hold economic hegemonies over certain industries than others.
-18. The U.S. mantra of war, business, and politics complements the coined sociologist's term, `durable inequality`. 
+16. Some terms associated with the U.S.' competitive spirit are `rat race`, `scramble`, `hustle`, and `ambition`. The dirty work and dirty games do not in and of themselves
+    make this country exceptional.
+18. The regionalism of the U.S. ensures that some regions are more favored to hold economic hegemonies over certain industries than others.
+19. The U.S. mantra of war, business, and politics complements the coined sociologist's term, `durable inequality`. 
