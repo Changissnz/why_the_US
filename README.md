@@ -20,3 +20,4 @@
 12. Freedom of religion has to contend with the capitalist spirit of the U.S., that which enjoys expensive science and conducts commerce with many nations near or far. 
 13. People read the U.S. headlines and see the statistics, prompting them to expect a lot for themselves from the U.S.
 14. The U.S. has been going through indescribable political changes over the past two decades.
+15. The U.S. media and other social figures use a very inclusive and psychodramatik way of talking about diversity, the corporate ladder, and political power.
