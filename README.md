@@ -27,3 +27,4 @@
 16. The U.S. mantra of war, business, and politics complements the coined sociologist's term, `durable inequality`.
 17. Equal in scope to the U.S.' rich history of technological achievements (despite its being a young nation) is a history more than slightly riddled with fraud. 
 18. The U.S. is not entirely a haven for rationalists. In fact, it can be argued that there exists no country in the world that is entirely a haven for rationalists.
+19. The typical American minds their own business but business typically involves many people. 
