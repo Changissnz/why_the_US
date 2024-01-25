@@ -28,5 +28,5 @@
 17. Equal in scope to the U.S.' rich history of technological achievements (despite its being a young nation) is a history more than slightly riddled with fraud. 
 18. The U.S. is not entirely a haven for rationalists. In fact, it can be argued that there exists no country in the world that is entirely a haven for rationalists.
 19. The typical citizen of the U.S. minds their own business but business typically involves many people. 
-20. Two of the most important U.S. institutions that unite the generation of U.S. citizens born after 1980 are the public education system (that which remains contentious) and
+20. Two of the most important U.S. institutions that unite the generations of U.S. citizens born after 1980 are the public education system (that which remains contentious) and
     cultural fads (transmitted by word of mouth, physical meeting places, and the internet). 
